@@ -8,7 +8,7 @@
 
 ## Learning
 
-🌱 Currently pursuing a degree in Computer Engineering and taking extra courses to enhance my studies towards my goals! Gaining experience as an intern at ApexBrasil and as a development analyst at DigitalAnalytics!
+🌱 Currently pursuing a degree in Computer Engineering and taking extra courses to enhance my studies towards my goals!
 
 ## Contact
 
